@@ -1,1 +1,1 @@
-# yume is not on github sorry glazers D:
+barely updating this now, feel free to deobfuscate this while you can.
